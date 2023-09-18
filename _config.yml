@@ -42,7 +42,10 @@ collections:
   letters:
     # Any letters to others.
     output: true
-    permalink: /letters/:path
+    permalink: /letters/:path/
+  posts:
+    output:
+    permalink: /posts/:path/
 
 # Exclude from processing.
 # The following items will not be processed, by default.
