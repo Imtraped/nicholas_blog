@@ -43,9 +43,10 @@ collections:
     # Any letters to others.
     output: true
     permalink: /letters/:path/
-  posts:
+  eassys:
+    # All of my bad eassys.
     output: true
-    permalink: /posts/:path/
+    permalink: /eassys/:path/
 
 # Exclude from processing.
 # The following items will not be processed, by default.

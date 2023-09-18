@@ -10,8 +10,8 @@ This's where all of my letters go.
 
 [Letters](/letters/)
 
-# Posts
+# Eassys
 
-They do my talking for me
+They are all bad.
 
-[Posts](/posts/)
+[Eassys](/eassys/)
