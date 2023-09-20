@@ -31,7 +31,7 @@ How do you have it's entry?
 
 WHAT?
 
-~~Sorry, Bard. Nick works in mysterious ways. All of us we're surpersied, he won't tell us how.~~
+~~Sorry, Quan. Nick works in mysterious ways. All of us we're surpersied, he won't tell us how.~~
 
     >She's not comfortable with y'all yet.
 
