@@ -5,34 +5,14 @@ date:   2023-09-18 11:36:00 -0400
 categories: small_things
 ---
 
-I saw a pink, small, litle fella in the lake. I sawer it's not any of the other lifeforms in the area.
+I saw a pink, small, litle fella in the lake. I sawer it's not any of the other lifeforms in the area. JK, it's just my Mesprit.
 
-    > Are you sure it wasn't?
+I'll tell ya, for a lake grundian, it's firednly.
 
-"It could've been a Mesprit."
+It's slowly getting used to me and my other pokemon.  And, I've discovered that it likes getting pet on the head, and tails. It has let me pet it's gemstone.
 
-That pokemon is not real, stop subscribing to that conspiracy theory magazine of yours.
+Yes, I'm aware that the myth says that "if you touch it you lose all emotions". It's never happened to me. If it did, it would put them back.
 
-"Bro, Mach, and I have seen it."
+Plus, if it takes, it can give back. So, that shouldn't be a problem.
 
-~~Yeah, the pokemon often plays with the water and other pelope around the lake.~~
-
-    > Even I, The only vampire in the research team have seen it. I walk around the lake every night with it.
-
-~~Hey Nick, show Quan the pokedex entry you got from scanning it.~~
-
-    >Ok, Hang on.
-
-*Mesprit, The Emotion Pokemon. Number: 481. Danger Level: 2/9. Sometimes, it's seen playing on the lake's surface, it may let other pokemon or more rarely people, join in. Firendly, but mischievous. You can touch it, that's just a myth. But, the taking of emotions part is real. Adivce: Don't mess with it.*
-
-How do you have it's entry?
-
-    >I've caught one :)
-
-WHAT?
-
-~~Sorry, Quan. Nick works in mysterious ways. All of us we're surpersied, he won't tell us how.~~
-
-    >She's not comfortable with y'all yet.
-
-SHE???????!!!??? You know what, I'm done here, GOODBYE, YOU FAKER.
+My Mesprit is a surprise, I never had expected it to be so sweet.
