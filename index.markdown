@@ -4,14 +4,3 @@
 
 layout: home
 ---
-# Letters
-
-This's where all of my letters go.
-
-[Letters](/letters/)
-
-# Eassys
-
-They are all bad.
-
-[Eassys](/eassys/)
